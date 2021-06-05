@@ -1,0 +1,5 @@
+- Hi, I’m @BikiBalami99
+- I’m interested in coding, digital art, 3d modelling
+- I’m currently learning web development, blender3D
+- I’m looking to collaborate on game development, concept arts
+- How to reach me bikibalami99@gmail.com, instagram : @bikibalamiarts, facebook : https://www.facebook.com/BikiBalami99/
